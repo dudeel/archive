@@ -9,3 +9,7 @@ https://www.youtube.com/@posle_zavtra
 https://www.youtube.com/@MINAEVLIVE
 https://www.youtube.com/@bratishkinfullstreams
 https://www.youtube.com/@sparmastint/videos
+
+
+Yandex c++
+https://cloud.mail.ru/public/kqnM/bWJbvUnYA
