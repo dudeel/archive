@@ -16,3 +16,11 @@ https://cloud.mail.ru/public/kqnM/bWJbvUnYA
 
 Алгоритмы
 https://cloud.mail.ru/public/KWzW/jkzjvFF8h
+
+English
+https://drive.google.com/drive/folders/158hyILssV4_6yEdDYoBBp05GxPLkA753?usp=sharing
+https://drive.google.com/file/d/1Xzv05FwqNXMjEO0PMZPkBPEjGD6PzaYt/view?usp=sharing
+
+Unity
+https://drive.google.com/drive/folders/1fs8MKgV6I_2oxcMOkg0SLDtgIitSUSsz?usp=sharing
+https://drive.google.com/drive/folders/10B5KUD8IrrCRP66wggkszZtDAPVwl67B?usp=sharing
