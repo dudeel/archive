@@ -13,3 +13,6 @@ https://www.youtube.com/@sparmastint/videos
 
 Yandex c++
 https://cloud.mail.ru/public/kqnM/bWJbvUnYA
+
+Алгоритмы
+https://cloud.mail.ru/public/KWzW/jkzjvFF8h
