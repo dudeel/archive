@@ -2,6 +2,7 @@
 Trashbox
 https://drive.google.com/file/d/1w24pbN5mctrZtSSRsro01Ihk4wd7n03a/view?usp=sharing
 
+![NewInterface](https://github.com/dudeel/archive/assets/76850149/e7870410-942c-465d-ba5c-183438cd5057)
 
 https://www.youtube.com/@posle_zavtra
 https://www.youtube.com/@MINAEVLIVE
